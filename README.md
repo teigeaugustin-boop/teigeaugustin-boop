@@ -1,4 +1,4 @@
-# Hi, I'm **Teige Augustin** 👋
+# Hi, I'm **Teige Augustin!** 👋
 
 ## 👨‍🏫 About Me
 
